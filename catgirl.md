@@ -1,0 +1,1 @@
+a big cute cat-ear girl with a little-light-blue hair and blue eyes. wears a white dress with Two-dimensionaled norealed with a winter-snow background weared red ribbon and white-colored-gloves japanese commic
